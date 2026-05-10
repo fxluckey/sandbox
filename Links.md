@@ -1,5 +1,13 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-10 06:20 (IR Time)
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.001](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.001) `90.00 MB`
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.002](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.002) `90.00 MB`
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.003](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.003) `90.00 MB`
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.004](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.004) `90.00 MB`
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.005](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.005) `90.00 MB`
+- 📥 [__KDramaPersia_ Phantom.Lawyer.S01E13.720p.SoftSub.zip.006](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E13.720p.SoftSub.zip.006) `17.07 MB`
+
 ### 📅 2026-05-10 01:00 (IR Time)
 - 📥 [__KDramaPersia_ Phantom.Lawyer.S01E12.720p.SoftSub.zip.001](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E12.720p.SoftSub.zip.001) `90.00 MB`
 - 📥 [__KDramaPersia_ Phantom.Lawyer.S01E12.720p.SoftSub.zip.002](https://github.com/fxluckey/sandbox/raw/main/dl/__KDramaPersia_%20Phantom.Lawyer.S01E12.720p.SoftSub.zip.002) `90.00 MB`
