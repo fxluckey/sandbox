@@ -1,5 +1,11 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-13 13:34 (IR Time)
+- 📥 [Video_17378.z01](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.z01) `95.00 MB`
+- 📥 [Video_17378.z02](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.z02) `95.00 MB`
+- 📥 [Video_17378.z03](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.z03) `95.00 MB`
+- 🗜️ [Video_17378.zip](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.zip) `63.23 MB`
+
 ### 📅 2026-05-13 07:11 (IR Time)
 - 🎬 [The_Beast_in_Me_S01E01_10bit_x265_720p_WEBRip_2CH_PSA__movieo_bo_part_000.mkv](https://github.com/fxluckey/sandbox/raw/main/dl/The_Beast_in_Me_S01E01_10bit_x265_720p_WEBRip_2CH_PSA__movieo_bo_part_000.mkv) `27.91 MB`
 - 🎬 [The_Beast_in_Me_S01E01_10bit_x265_720p_WEBRip_2CH_PSA__movieo_bo_part_001.mkv](https://github.com/fxluckey/sandbox/raw/main/dl/The_Beast_in_Me_S01E01_10bit_x265_720p_WEBRip_2CH_PSA__movieo_bo_part_001.mkv) `31.69 MB`
