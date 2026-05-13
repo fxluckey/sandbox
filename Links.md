@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-13 20:57 (IR Time)
+- 🗜️ [khdhfz_khnfyng_pwly_t_dlt_mykhd_by_nhyt_khnfyng_rygn_prsraat_bsz.zip](https://github.com/fxluckey/sandbox/raw/main/dl/khdhfz_khnfyng_pwly_t_dlt_mykhd_by_nhyt_khnfyng_rygn_prsraat_bsz.zip) `77.53 MB`
+
 ### 📅 2026-05-13 13:34 (IR Time)
 - 📥 [Video_17378.z01](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.z01) `95.00 MB`
 - 📥 [Video_17378.z02](https://github.com/fxluckey/sandbox/raw/main/dl/Video_17378.z02) `95.00 MB`
